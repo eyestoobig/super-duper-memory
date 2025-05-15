@@ -1,1 +1,1 @@
-# super-duper-memory
+# home-office-gadgets-2025
